@@ -1,0 +1,1 @@
+- Ronaldo trained on free kicks 🎯
